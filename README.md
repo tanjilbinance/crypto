@@ -1,0 +1,2 @@
+# crypto
+buy the crypto
